@@ -1,0 +1,2 @@
+# Hafta19Odev
+ 
